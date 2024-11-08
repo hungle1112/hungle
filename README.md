@@ -1,0 +1,1 @@
+"swp\mana_hotel"
